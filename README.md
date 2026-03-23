@@ -14,8 +14,6 @@
 
 🔭I'm currently learning ML
 
-🙋I'm Finding a collaboration
-
 📫How to reach me: https://www.facebook.com/profile.php?id=100026912930332
 
 ⚡Fun fact:  Still stay slim no matter how many snacks I munch
